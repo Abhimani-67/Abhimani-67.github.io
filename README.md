@@ -1,6 +1,6 @@
+![image](https://github.com/user-attachments/assets/25a934a4-4e0e-4c16-ac8a-3b04c3a15d2a)
 # About me
-I am an enthusiastic Biotechnology undergraduate with a passion for working in laboratories and doing researches. I am a very quick learner with the tenacity to overcome any challenge that comes my way. I have a long-term goal of becoming a scientist and make contributions to the world by making new discoveries.
-https://github.com/Abhimani-67/Abhimani-67.github.io/blob/main/image.png?raw=true
+I am an enthusiastic Biotechnology undergraduate with a passion for working in laboratories and doing researches. I am a very quick learner with the tenacity to overcome any challenge that comes my way. I have a long-term goal of becoming a scientist and make contributions to the world by making new discoveries.   
 # Educational Qualifications 
 **Lyceum International School - Gampaha**   
 **2016-2024**   
