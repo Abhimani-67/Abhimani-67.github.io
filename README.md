@@ -19,9 +19,10 @@ Chemistry, Plant Tissue Culture Laboratories
 - Team work
 + Good Laboratory Practices
 * Problem Solving
+  
 # Hobbies
-  Drawing  
+  Drawing   
+  
 # My Resume  
   (https://1drv.ms/b/c/5a94fb115597e59f/EdQBCgPWYKRFnG7_t50I4TUBgncTXFBgmeIp7hxLFdJ0Qg?e=h6aAXE)  
-# Email Address 
-  abhimanikaushika@gmail.com 
+
