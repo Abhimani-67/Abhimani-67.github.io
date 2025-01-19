@@ -19,6 +19,9 @@ Chemistry, Plant Tissue Culture Laboratories
 - Team work
 + Good Laboratory Practices
 * Problem Solving
+
+
+  
   
 # Hobbies
   Drawing   
